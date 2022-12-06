@@ -30,5 +30,10 @@
 # [mason subahibi]() | dm for it
 ![screenshot212](https://user-images.githubusercontent.com/115696505/206018087-d5780a6e-a5e3-463d-86e0-70c9ec35e1ea.jpg)
 
+# [made when bored]() | dm for it
+![screenshot213](https://user-images.githubusercontent.com/115696505/206020866-45e6feb5-6bc5-40b5-aff9-b6676d7a8131.jpg)
+
+
+
 
 
