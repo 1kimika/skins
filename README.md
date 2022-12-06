@@ -1,4 +1,4 @@
-<p align="center"># mas skins
+<p align="center"> mas skins | kimika#0001
 <p align="center">
 <a href="https://osu.ppy.sh/users/21821366">
   <img src="https://a.ppy.sh/21821366?1669712909.jpeg"  
