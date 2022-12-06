@@ -1,4 +1,4 @@
-# skins
+# my skins / edits | kimika#0001
 
 # [bocchi time](https://subahibi.s-ul.eu/R3oIJKNH)
 ![screenshot205](https://user-images.githubusercontent.com/115696505/205909438-4f68caad-8698-4aa6-8131-53643b455e92.jpg)
