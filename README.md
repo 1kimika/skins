@@ -4,6 +4,7 @@
   <img src="https://a.ppy.sh/21821366?1669712909.jpeg"  
        width="150"
        height="150"></a>
+<p align="center"> some edit some mine
 
 # [bocchi time](https://subahibi.s-ul.eu/R3oIJKNH)
 ![screenshot205](https://user-images.githubusercontent.com/115696505/205909438-4f68caad-8698-4aa6-8131-53643b455e92.jpg)
@@ -19,4 +20,7 @@
 
 # [miku](https://subahibi.s-ul.eu/OJO75yKw)
 ![screenshot209](https://user-images.githubusercontent.com/115696505/205918542-d84f1b66-518d-40a0-802e-e041c174ca3e.jpg)
+
+# [kimika basic](https://subahibi.s-ul.eu/5pseQMG8)
+![screenshot210](https://user-images.githubusercontent.com/115696505/206012100-c5d16ee2-5edc-43a7-8a6f-64f714b22e3c.jpg)
 
