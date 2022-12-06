@@ -24,3 +24,7 @@
 # [kimika basic](https://subahibi.s-ul.eu/5pseQMG8)
 ![screenshot210](https://user-images.githubusercontent.com/115696505/206012100-c5d16ee2-5edc-43a7-8a6f-64f714b22e3c.jpg)
 
+# [umineko mason edit](https://subahibi.s-ul.eu/fqlDNEVg)
+![screenshot211](https://user-images.githubusercontent.com/115696505/206013977-2adced76-7607-475a-8ca8-1735968bce7b.jpg)
+
+
