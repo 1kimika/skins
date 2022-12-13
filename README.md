@@ -33,6 +33,8 @@
 # [merp mason](https://subahibi.s-ul.eu/M2kgkXtu)
 ![screenshot216](https://user-images.githubusercontent.com/115696505/206263286-d677aa2e-2c93-4389-9d22-0a6ab7f026cc.jpg)
 
+# [blute monko](https://subahibi.s-ul.eu/M9kcksts)
+![screenshot218](https://user-images.githubusercontent.com/115696505/207215010-51dc4cd5-a591-4e6e-952d-5140fc502c2c.jpg)
 
 # [mason subahibi]() | dm for it
 ![screenshot212](https://user-images.githubusercontent.com/115696505/206018087-d5780a6e-a5e3-463d-86e0-70c9ec35e1ea.jpg)
