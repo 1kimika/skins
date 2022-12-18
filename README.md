@@ -1,10 +1,10 @@
-<p align="center"> mas skins | kimika#0001
+<p align="center"> mas skins | xxxxxxxx
 <p align="center">
 <a href="https://osu.ppy.sh/users/21821366">
   <img src="https://a.ppy.sh/21821366?1669712909.jpeg"  
        width="150"
        height="150"></a>
-<p align="center"> some edit some mine
+<p align="center"> 12/17/22
 
 # [bocchi time](https://subahibi.s-ul.eu/R3oIJKNH)
 ![screenshot205](https://user-images.githubusercontent.com/115696505/205909438-4f68caad-8698-4aa6-8131-53643b455e92.jpg)
