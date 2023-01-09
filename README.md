@@ -9,7 +9,7 @@
 # [mason bubble apne chimp](https://subahibi.s-ul.eu/gC1axeVV)
 ![screenshot223](https://user-images.githubusercontent.com/115696505/210087334-9e5fabc2-981a-41d6-b772-6b401814aa96.jpg)
 
-# [death]()
+# [death](https://subahibi.s-ul.eu/0sf1WgSa)
 ![screenshot001](https://user-images.githubusercontent.com/115696505/211277121-13cbe73e-14a2-4a9e-9377-e0d99b8b88d2.jpg)
   
 # [bocchi time](https://subahibi.s-ul.eu/R3oIJKNH)
