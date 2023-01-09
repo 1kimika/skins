@@ -8,22 +8,19 @@
 
 # [mason bubble apne chimp](https://subahibi.s-ul.eu/gC1axeVV)
 ![screenshot223](https://user-images.githubusercontent.com/115696505/210087334-9e5fabc2-981a-41d6-b772-6b401814aa96.jpg)
+
+# [death]()
+![screenshot001](https://user-images.githubusercontent.com/115696505/211277121-13cbe73e-14a2-4a9e-9377-e0d99b8b88d2.jpg)
   
 # [bocchi time](https://subahibi.s-ul.eu/R3oIJKNH)
 ![screenshot205](https://user-images.githubusercontent.com/115696505/205909438-4f68caad-8698-4aa6-8131-53643b455e92.jpg)
-
-# [bocchi time 2](https://subahibi.s-ul.eu/QtmX3kuD)
-![screenshot204](https://user-images.githubusercontent.com/115696505/205910592-41ce4ad2-a605-468a-b805-1d10120e9cb7.jpg)
 
 # [weiner](https://subahibi.s-ul.eu/49lxL8Dr)
 ![screenshot227](https://user-images.githubusercontent.com/115696505/210115846-9578e598-1d7b-44f3-9ff6-49a4e8f70b9c.jpg)
 
 # [karcher recolour/edit](https://subahibi.s-ul.eu/YVt9IM1d)
 ![screenshot207](https://user-images.githubusercontent.com/115696505/205911813-82eae1c0-3bc7-4434-bd87-a3aa411b5fa5.jpg)
-  
-# [herbigbrowneyes](https://subahibi.s-ul.eu/2PfD1ZNk)
-![screenshot222](https://user-images.githubusercontent.com/115696505/209139870-db39a278-65c2-415c-a0cc-5524c8b8b1a9.jpg)
-  
+
 # [herbigredeyes](https://subahibi.s-ul.eu/gZukfb42)
 ![screenshot226](https://user-images.githubusercontent.com/115696505/210087725-60eff5ee-d362-4bc4-ab55-942e143820a6.jpg)
 
@@ -38,9 +35,6 @@
 
 # [umineko mason edit](https://subahibi.s-ul.eu/fqlDNEVg)
 ![screenshot211](https://user-images.githubusercontent.com/115696505/206013977-2adced76-7607-475a-8ca8-1735968bce7b.jpg)
-
-# [sakura no uta](https://subahibi.s-ul.eu/ZvMwDDqr)
-![screenshot214](https://user-images.githubusercontent.com/115696505/206022960-17c0d3a0-f82d-43b2-beb5-ea26164c2f47.jpg)
   
 # [merp mason](https://subahibi.s-ul.eu/M2kgkXtu)
 ![screenshot216](https://user-images.githubusercontent.com/115696505/206263286-d677aa2e-2c93-4389-9d22-0a6ab7f026cc.jpg)
